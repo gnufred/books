@@ -1,5 +1,11 @@
 # Novels by Frédéric Potvin
 
+About 25 years ago, I wrote my first book, *Électrochoc*, a Shadowrun fanfic. Since then, I’ve drafted the nine-book saga *The Monk & The Witch*.
+
+When AI came out, I had so many notes and drafts that I was able to put them all together into something really cool. I really enjoyed building it.
+
+So here they are, all my stories from the last 25 years.
+
 ## The Monk & The Witch
 
 ### English
